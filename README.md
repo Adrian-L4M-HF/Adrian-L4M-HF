@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Adrian-L4M-HF
-- 📫 adrianlamuk@gmail.com
 - 🔰Electrical and Electronics Engineering undergraduate
 
 ------------------------------------------------------------------------------------------------------------
